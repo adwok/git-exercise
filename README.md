@@ -1,2 +1,2 @@
 anything you like, something small. 
-Make a small changeS
+Make a small change
